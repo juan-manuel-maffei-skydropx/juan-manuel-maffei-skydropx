@@ -6,8 +6,6 @@ I'm [Juan Manuel Maffei](https://github.com/juanmamaffei), a passionate Software
 
 💡 **Collaboration:** Being part of the solution drives me. I love collaborating on projects that make a difference.
 
-📫 **Let's Connect:** Feel free to reach out to me on [GitHub](https://github.com/juanmamaffei). I'm also on [LinkedIn](https://ar.linkedin.com › juanmamaffei). Let's make magic happen, together!
-
 ---
 
 💫 Remember...
